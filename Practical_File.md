@@ -5,15 +5,15 @@
 # PROGRAMMING FOR PROBLEM SOLVING ESC-18105
 ----
 
-* ***NAME-DIVYANSHU KUMAR*** 
+* ***NAME- ___________________*** 
 
-     [![mine.jpg](https://i.postimg.cc/7Yb02hjg/mine.jpg)](https://postimg.cc/QHGFL88t)
+     [![mine.jpg](https://)](https://)
 
-* ***CLASS ROLL NO.-1921027***   
-* ***COLLEGE ROLL NO.-1905326***
+* ***CLASS ROLL NO.-_________***   
+* ***COLLEGE ROLL NO.-____________***
 * ***BRANCH- INFORMATION TECHNOLOGY***
-* ***SECTION- A1***
-* ***SUBMITTED TO- RANJODH MA'AM***
+* ***SECTION- _____***
+* ***SUBMITTED TO- Jagdeep Singh***
 ----
 
 # 
